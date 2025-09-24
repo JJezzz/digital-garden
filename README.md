@@ -1,4 +1,4 @@
-ʼ# 🌱 Tree of Knowledge  
+🌱 Tree of Knowledge  
 
 A **virtual space** where every idea or note **grows like a plant**.  
 The more you **work on a topic**, the bigger and stronger your **Tree of Knowledge** becomes.  
